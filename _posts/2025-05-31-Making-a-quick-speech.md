@@ -1,7 +1,7 @@
 # **A SIMPLE GUIDE TO MAKING AN EFFECTIVE SPEECH**
 
 
-Are you wondereing how to write a speech in 2-5 minutes?Personally I absolutely hate to write speeches but using this technique it completely changed my thought process : There are 3 parts of a speech
+Are you wondereing how to write a speech in 2-5 minutes?Personally I absolutely hate to write speeches but using this technique it completely changed my thought process : There are 3 parts of a speech Kura
 
     ![1748705278512](image/2025-05-31-Making-a-quick-speech/1748705278512.png) 
 
