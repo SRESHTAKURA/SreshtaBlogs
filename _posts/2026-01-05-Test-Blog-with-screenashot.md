@@ -1,3 +1,5 @@
 Screenshot test
 
-![alt text](image-2.png)
+![alt text][testing]
+
+[testing]: image-2.png
