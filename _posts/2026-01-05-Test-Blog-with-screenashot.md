@@ -1,5 +1,3 @@
-Screenshot test
+Screenshot test Test3
 
-![alt text][testing]
-
-[testing]: image-2.png
+![image](image-3.png)
