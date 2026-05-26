@@ -1,13 +1,12 @@
-Have you ever heard of these men wiling to sell and buy their own life in the greed for money and luxury.
+Have you ever heard about a group of men wiling to sell and buy their own life in the greed for money and luxury.
 On earth  over a widespan of time mankind have relied on trees and plant for survival e.g. food, travel ,materials, furniture , construction ,
-medicines ,paper ant more.
+medicines ,paper and more.
 
-"Nature is an infente  sphere of which the centre is everywhere and circumference is nowhere"-Blaise Pascal
+"Nature is an infinte  sphere of which the centre is everywhere and circumference is nowhere"-Blaise Pascal
 
 Now trees as we know can take in carbon dioxide and give oxygen ,but do you know how much ? Just one trees can absorbs billion of tonnes
-of carbon dioxide .Then only 1 human breathes up to 22,000 to 25,000 times a day. How much carbon dioxide will their be in the air? With 8
-billion or even more people in the world . Mankind has cut down trees to be used for comfort like for example weapons , medicines, all the
-effect it gives to all  living things on daily basis is less oxygen ,pollution , increase in climate change and global warming , habitat
+of carbon dioxide .Then only 1 human breathes up to 22,000 to 25,000 times a day. How much carbon dioxide will there be in the air? With 8
+billion or even more people in the world . Mankind has cut down trees to be used for daily life like for example weapons , medicines,furniture,staionary etc.All that happens is trees give less oxygen , increase pollution , increase in climate change and global warming , habitat
 loss and animals left with no shelter and safety.Sadly there is 42 million trees being cut down everyday .
 Luckily we can solve this unbearable issue by educating students and others to plant trees and put up workshops and encouraging people to
 respect and use less trees .
